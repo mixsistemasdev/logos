@@ -1,1 +1,1 @@
-# miscelaneous logos
+# logos
